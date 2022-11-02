@@ -1,0 +1,1 @@
+27. USE OF FACILITIES. The clubhouse and other recreational and other facilities in Creekside are for the exclusive use and enjoyment of residents and guests, except as otherwise provided herein. Equipment and facilities are to be used in accordance with the rules posted therein.
