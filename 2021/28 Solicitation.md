@@ -1,0 +1,1 @@
+28. SOLICITATION.        Solicitation for commercial purposes is not permitted in Creekside, but solicitation for non-commercial purposes is permitted pursuant to Civil Code Section 798.51, as it may be revised from time to time. Residents may, for example, solicit for charitable or other non-profit purposes.
